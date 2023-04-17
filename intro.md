@@ -13,3 +13,10 @@ fake news, desculpa
 
 Cuida da sua vida amg
 Vai na sua branch que a Dani tem um presentinho pra você
+
+♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡
+Por você eu bebo o mar de canudinho
+Atravesso o Polo Norte de shortinho
+Entro descalço num vulcão em erupção
+Faço um assalto e roubo seu coração 
+♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡♡
