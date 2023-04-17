@@ -69,3 +69,31 @@ DANIEL BOOOOOOORGHI
 ...:..:#!!!!::::::!::::::::::!!::!!!!!!!!!:..#!!!!!!!!!!!!!!################!!################.::..!!!!!:!:::!:!########
 :#:###!!##!!!!::::::!!::::::::!!!!!!!!!!!..:##!!!!!!!!!!!!!!#################################:!!:. !:!:.!!!:!:.!########
 ##!#########!!!!:::::!!!!::::!!!!!######:#@##!!!!!!!!!!!!!!!##################################:...!#!###################
+
+belo indio emo bombado, me apaixonei...
+
+Eu peço respeito com a minha família
+Com as minhas Marias, com a minha Virgínia
+Ela sempre no corre, trampando a mil
+Sempre apanhando, mas nunca caiu
+
+É fácil chegar falando o que quer
+Respeita uma mãe, a minha mulher
+Através da tela, tu não sabe, irmão
+Que o comentário f*de um coração
+
+Tu tem 46, mas 20 de profissão Não é mais um menino, devia ter noção
+Então se liga, fala o que queria, agora escuta o que devia
+Otário, não vai mais falar da mãe das minhas Marias
+E pega a visão, seu comentário foi de um jornalista, matou um c*zão
+Se prega e não faz, não venha postar a pomba branca da paz
+
+Poderia estar aqui falando de coisa boa
+Amanhã é aniversário da minha patroa
+Ela é dona da WePink, mulher forte e guerreira
+Base da minha vida, minha base perfeita
+
+Então se liga, fala o que queria, agora escuta o que devia
+Otário, não vai mais falar da mãe das minhas Marias
+E pega a visão, seu comentário foi de um jornalista, matou um c*zão
+Se prega e não faz, não venha postar a pomba branca da paz
