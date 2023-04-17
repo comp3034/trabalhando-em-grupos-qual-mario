@@ -4,4 +4,4 @@ Quem num gosta di mim que vai caçá sua turmis!Atirei o pau no gatis, per gatis
 
 Eu não gostei, eu asmei!
 
-Alias eu discordo de tudo o que disse anteriormente.
+Alias eu discordo de tudo o que disse anteriormente. E digo mais, só isso.
